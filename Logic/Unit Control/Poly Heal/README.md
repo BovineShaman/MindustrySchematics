@@ -1,2 +1,2 @@
-![](https://imgur.com/nmrPCEN)
-![](https://imgur.com/864MvKA)
+![](https://i.imgur.com/nmrPCEN.png)
+![](https://i.imgur.com/864MvKA.png)
